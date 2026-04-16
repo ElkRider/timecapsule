@@ -1,4 +1,4 @@
-#### 1.About github add a function.
+#### 1.Permanent operation mechanism
 
 after 20 years , open this way which is open the lost memory a died people memory archive . I think this way can open the way to  morden people archeology way.
 
